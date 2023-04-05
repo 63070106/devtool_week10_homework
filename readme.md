@@ -1,5 +1,3 @@
-### Clip Present Week9 ###
-
 
 
 ### Clip Present Week10 ###
